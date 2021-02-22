@@ -1,2 +1,2 @@
 ## Psalms Kalu - Team Oversight
-## Prosper Kalu - Team Lead (Alpha's and beta's)
+## Prosper Kalu - Team Lead (Alphas and betas)
